@@ -8,13 +8,25 @@ a
 b
 c
 d
-e
-f
+The Effigy, got up with clothing
+Abstracted from the victim’s room,
+Is raised aloft to cheers of loathing
+Before it meets a flaming doom.
+
+The Fetishist gets out the hassock,
+Turns down the lamp, and bolts the door;
+Then in galoshes and a cassock.
+He worships it upon the floor.
+
 The Governess up in the attic
 Attempts to make a cup of tea;
 Her mind grows daily more erratic
 From cold and hunger and ennui.
-h
+
+The Hermit lives among the boulders,
+He wears no garment but a sack;
+By slow degrees his reason boulders,
+The sun has long since burnt him black.
 i
 j
 The Keeper, when it’s time for luncheon,
@@ -23,11 +35,19 @@ And taking out a home-made truncheon,
 Belabors him about the head.ls
 l
 m
+The Magnate waits upon the pavement
+For his enormous limousine,
+And ponders further child-enslavement
+And other projects still more mean.
 n
 o
 p
 q
 r
+The Ressurectionist goes plying
+Without ado his simple trade;
+Material is always dying
+And got with nothing but a spade.
 s
 t
 u
