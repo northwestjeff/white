@@ -39,8 +39,6 @@ Belabors him about the head.
 
 l
 
-m
-
 The Magnate waits upon the pavement
 For his enormous limousine,
 And ponders further child-enslavement
