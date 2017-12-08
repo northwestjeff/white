@@ -10,11 +10,17 @@ c
 d
 e
 f
-g
+The Governess up in the attic
+Attempts to make a cup of tea;
+Her mind grows daily more erratic
+From cold and hunger and ennui.
 h
 i
 j
-k
+The Keeper, when it’s time for luncheon,
+Flings down his charge upon the bed,
+And taking out a home-made truncheon,
+Belabors him about the head.ls
 l
 m
 n
