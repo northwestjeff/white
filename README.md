@@ -21,10 +21,6 @@ j
 k
 l
 m
-The Magnate waits upon the pavement
-For his enormous limousine,
-And ponders further child-enslavement
-And other projects still more mean.
 n
 o
 p
@@ -48,5 +44,3 @@ The Yegg on rubber soles comes creeping
 Inside the house when it is late,
 And while the occupants are sleeping,
 Removes the heirlooms and the plate.
-
-
