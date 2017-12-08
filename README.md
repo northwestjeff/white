@@ -46,9 +46,10 @@ o
 
 p
 
-q
-
-r
+The Quarry, Feeling from the outing,
+Sinks panting in the reeds and mud;
+And hearkens to the distant shouting
+That tells hem they are out for blood.
 
 The Ressurectionist goes plying
 Without ado his simple trade;
