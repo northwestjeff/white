@@ -27,32 +27,50 @@ The Hermit lives among the boulders,
 He wears no garment but a sack;
 By slow degrees his reason boulders,
 The sun has long since burnt him black.
+
 i
+
 j
+
 The Keeper, when it’s time for luncheon,
 Flings down his charge upon the bed,
 And taking out a home-made truncheon,
-Belabors him about the head.ls
+Belabors him about the head.
+
 l
+
 m
+
 The Magnate waits upon the pavement
 For his enormous limousine,
 And ponders further child-enslavement
 And other projects still more mean.
+
 n
+
 o
+
 p
+
 q
+
 r
+
 The Ressurectionist goes plying
 Without ado his simple trade;
 Material is always dying
 And got with nothing but a spade.
+
 s
+
 t
+
 u
+
 v
+
 x
+
 The Xenophobe grabs at the table,
 He feels his toes and fingers curl;
 For he is only barely able
