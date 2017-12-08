@@ -3,11 +3,14 @@
 An Apparition of her lover She recognizes with dismay;
 and later on she will discover that he himself had died today.
 
-
 a
+
 b
+
 c
+
 d
+
 The Effigy, got up with clothing
 Abstracted from the victim’s room,
 Is raised aloft to cheers of loathing
