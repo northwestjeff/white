@@ -39,6 +39,14 @@ t
 u
 v
 x
-y
-z
-z
+The Xenophobe grabs at the table,
+He feels his toes and fingers curl;
+For he is only barely able
+To keep from striking down the girl.
+
+The Yegg on rubber soles comes creeping
+Inside the house when it is late,
+And while the occupants are sleeping,
+Removes the heirlooms and the plate.
+
+
