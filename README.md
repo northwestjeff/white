@@ -8,10 +8,18 @@ a
 b
 c
 d
-e
+The Effigy, got up with clothing
+Abstracted from the victim’s room,
+Is raised aloft to cheers of loathing
+Before it meets a flaming doom.
+
 f
 g
-h
+The Hermit lives among the boulders,
+He wears no garment but a sack;
+By slow degrees his reason boulders,
+The sun has long since burnt him black.
+
 i
 j
 k
